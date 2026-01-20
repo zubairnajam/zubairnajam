@@ -100,8 +100,8 @@
 
 ## 📫 Connect With Me
 
-- 💼 **LinkedIn:** _add your link here_
-- 📧 **Email:** _optional_
+- 💼 **LinkedIn:** www.linkedin.com/in/zubair-najam
+- 📧 **Email:** zubairnajam18@gmail.com
 
 ---
 
